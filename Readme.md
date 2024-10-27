@@ -72,4 +72,4 @@ Notes :
 
 Amusez-vous bien à bâtir votre empire !
 
-_Auteur : Gracieux AHLONSOU_
+Auteur : @Cos
